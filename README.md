@@ -1,2 +1,4 @@
 # Naveen
-portfolio
+**EDUCATION**
+ADITYA ENGINNERING COLLEGE
+B.TECH
